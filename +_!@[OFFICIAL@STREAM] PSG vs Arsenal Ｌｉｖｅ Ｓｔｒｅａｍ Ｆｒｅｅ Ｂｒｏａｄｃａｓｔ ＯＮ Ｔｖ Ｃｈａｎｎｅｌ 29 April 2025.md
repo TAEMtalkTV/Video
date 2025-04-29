@@ -2,11 +2,11 @@
 
 Arsenal is going head to head with Paris Saint-Germain starting on 29 Apr 2025 at 19:00 UTC at Emirates Stadium stadium, London city, England. The match is a part of the UEFA Champions League, Knockout Phase.
 
-[CLICK HERE TO Ｌｉｖｅ Ｓｔｒｅａｍ](https://tinyurl.com/55mchz49)
+[CLICK HERE TO Ｌｉｖｅ Ｓｔｒｅａｍ](https://jones-hyper.blogspot.com/2025/04/ucgit.html)
 
-[CLICK HERE TO WATCH Ｌｉｖｅ ONLINE](https://tinyurl.com/55mchz49)
+[CLICK HERE TO WATCH Ｌｉｖｅ ONLINE](https://jones-hyper.blogspot.com/2025/04/ucgit.html)
 
-[CLICK HERE TO Ｌｉｖｅ STREAM](https://tinyurl.com/55mchz49)
+[CLICK HERE TO Ｌｉｖｅ STREAM](https://jones-hyper.blogspot.com/2025/04/ucgit.html)
 
 Arsenal played against Paris Saint-Germain in 1 matches this season.
 
